@@ -1,0 +1,1 @@
+# ekorenovsky-static-auto.github.io
